@@ -1,9 +1,9 @@
 ## Hi 👋 I'm Jess! 
 🎓 I’m all about Data-Driven Advocacy for Gender & Public Policy. I mix up my love for MEL, communications, and Project Management with a good dose of data analysis (both the qualitative and quantitative kind).
+
 🤝 Always on the hunt for cool research opportunities in tech, innovation policy, and human rights. If you know of any exciting projects or job openings, let’s connect—I’d love to chat and collaborate! 
 
 🎶 Fun Fact: I’m probably jamming out to my latest playlist—if you're into music, hit me up with your favorite tracks. I’m always down to discover something new!
-
 
 🌟 **Let’s connect and build a more inclusive and data-driven future!** 🌟
 
