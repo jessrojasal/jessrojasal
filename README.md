@@ -16,6 +16,6 @@
 - ✏️ Pronouns: she/her/ella
 - 💬 Ask me about **Gender data** and **Data-driven MEL practices**—I’m always up for a deep dive!
 - 🏠 Originally from Costa Rica, now living in Brussels, Belgium.
-- 📫 Catch me on **[LinkedIn](www.linkedin.com/in/jessrojasal)** if you want to connect!
+- 📫 Catch me on **[LinkedIn](https://www.linkedin.com/in/jessrojasal)** if you want to connect!
 - 🌱 Right now, I’m diving into the world of data science and machine learning—it’s all about leveling up those skills!
 
